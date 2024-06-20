@@ -7,6 +7,8 @@
 
 ### https://lopsided-cheetah-65c.notion.site/PROPCHAIN-DOCUMENTATION-WHITEPAPER-ed626cf413f942ceb5406a7d4c696b96?pvs=4
 
+#### https://youtu.be/x84xQ_eiYiA?si=XQxFzvFpPQgNYtlf
+
 
 ### PITCH DESK SLIDE
 
